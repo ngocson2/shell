@@ -1,1 +1,1 @@
-ok th‡nh cÙng
+ok th√†nh c√¥ng
